@@ -1,7 +1,6 @@
 you dont need to credit me to use these but. uhh yeah
 
-<img src="https://f3verdream.carrd.co/assets/images/gallery02/c9146555.png?v=de14f5ad"> 
-<img src="https://f3verdream.carrd.co/assets/images/gallery02/8069d3f7.gif?v=de14f5ad">
+<img src="https://f3verdream.carrd.co/assets/images/gallery02/c9146555.png?v=de14f5ad"> <img src="https://f3verdream.carrd.co/assets/images/gallery02/8069d3f7.gif?v=de14f5ad">
 <img src="https://f3verdream.carrd.co/assets/images/gallery02/843660eb.png?v=de14f5ad">
 <img src="https://f3verdream.carrd.co/assets/images/gallery02/f41f4ae0.png?v=de14f5ad">
 <img src="https://f3verdream.carrd.co/assets/images/gallery02/1a8e4b2c.png?v=de14f5ad">
