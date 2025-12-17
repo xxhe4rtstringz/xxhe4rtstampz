@@ -1,6 +1,7 @@
 you dont need to credit me to use these but. uhh yeah
 
-<img src="https://f3verdream.carrd.co/assets/images/gallery02/c9146555.png?v=de14f5ad"> <img src="https://f3verdream.carrd.co/assets/images/gallery02/8069d3f7.gif?v=de14f5ad">
+<img src="https://f3verdream.carrd.co/assets/images/gallery02/c9146555.png?v=de14f5ad"> 
+<img src="https://f3verdream.carrd.co/assets/images/gallery02/8069d3f7.gif?v=de14f5ad">
 <img src="https://f3verdream.carrd.co/assets/images/gallery02/843660eb.png?v=de14f5ad">
 <img src="https://f3verdream.carrd.co/assets/images/gallery02/f41f4ae0.png?v=de14f5ad">
 <img src="https://f3verdream.carrd.co/assets/images/gallery02/1a8e4b2c.png?v=de14f5ad">
@@ -36,3 +37,10 @@ you dont need to credit me to use these but. uhh yeah
 <img src="https://f3verdream.carrd.co/assets/images/gallery03/10645894.png?v=437ef1ac">
 <img src="https://f3verdream.carrd.co/assets/images/gallery03/d171cfbc.png?v=e4e8b2a2">
 <img src="https://f3verdream.carrd.co/assets/images/gallery03/a113408d.png?v=e4e8b2a2">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/68260323.png?v=5d00d9ca">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/b9be1e07.png?v=5d00d9ca">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/634be050.png?v=5d00d9ca">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/199aa1a2.png?v=5d00d9ca">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/5df09637.png?v=5d00d9ca">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/5df09637.png?v=5d00d9ca">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/47e33362.png?v=5d00d9ca">
