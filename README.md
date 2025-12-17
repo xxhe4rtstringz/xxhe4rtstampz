@@ -23,9 +23,7 @@ you dont need to credit me to use these but. uhh yeah
 <img src="https://f3verdream.carrd.co/assets/images/gallery02/ba5c3b70.png?v=b93d7c96">
 <img src="https://f3verdream.carrd.co/assets/images/gallery02/7169387a.png?v=b93d7c96">
 <img src="https://f3verdream.carrd.co/assets/images/gallery02/de804942.png?v=b93d7c96">
-<img src="https://f3verdream.carrd.co/assets/images/gallery03/68d73008.png?v=046fff17">
 <img src="https://f3verdream.carrd.co/assets/images/gallery03/263c139e.png?v=d467d1cf">
-<img src="https://f3verdream.carrd.co/assets/images/gallery03/2b340600.png?v=0e9d8bca">
 <img src="https://f3verdream.carrd.co/assets/images/gallery03/709436be.png?v=7bff28a5">
 <img src="https://f3verdream.carrd.co/assets/images/gallery03/6d32edcd.png?v=2128a5f6">
 <img src="https://f3verdream.carrd.co/assets/images/gallery03/7746ef8e.png?v=0e9d8bca">
