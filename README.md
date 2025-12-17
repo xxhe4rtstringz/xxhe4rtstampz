@@ -30,3 +30,7 @@ you dont need to credit me to use these but. uhh yeah
 <img src="https://f3verdream.carrd.co/assets/images/gallery03/df62ea76.png?v=15a83e5b">
 <img src="https://f3verdream.carrd.co/assets/images/gallery03/db9abc19.png?v=43276f3c">
 <img src="https://f3verdream.carrd.co/assets/images/gallery03/ccac1c85.png?v=9f011650">
+<img src="https://f3verdream.carrd.co/assets/images/gallery02/a43088b4.png?v=437ef1ac">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/78efe066.png?v=437ef1ac">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/fe685530.png?v=437ef1ac">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/10645894.png?v=437ef1ac">
