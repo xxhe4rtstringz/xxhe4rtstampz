@@ -42,3 +42,12 @@ you dont need to credit me to use these but. uhh yeah
 <img src="https://f3verdream.carrd.co/assets/images/gallery03/199aa1a2.png?v=5d00d9ca">
 <img src="https://f3verdream.carrd.co/assets/images/gallery03/5df09637.png?v=5d00d9ca">
 <img src="https://f3verdream.carrd.co/assets/images/gallery03/47e33362.png?v=5d00d9ca">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/7987f6ff.png?v=46590051">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/080d159a.png?v=46590051">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/350c354e.png?v=46590051">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/796fb13e.png?v=46590051">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/5c98de47.png?v=46590051">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/e7b7ca23.png?v=46590051">
+<img src="https://f3verdream.carrd.co/assets/images/gallery03/55424924.png?v=46590051">
+<img src="https://f3verdream.carrd.co/assets/images/gallery04/a5232a10.png?v=46590051">
+<img src="https://f3verdream.carrd.co/assets/images/gallery04/861d28fe.png?v=46590051">
