@@ -54,3 +54,5 @@ you dont need to credit me to use these but. uhh yeah
 <img src="https://f3verdream.carrd.co/assets/images/gallery04/ae128eba.gif?v=7a2e8463">
 <img src="https://f3verdream.carrd.co/assets/images/gallery04/f43c4a0e.png?v=7a2e8463">
 <img src="https://f3verdream.carrd.co/assets/images/gallery04/a249bbe1.png?v=7a2e8463">
+<img src="https://f3verdream.carrd.co/assets/images/gallery04/72895ffb.png?v=68be58a8">
+<img src="https://f3verdream.carrd.co/assets/images/gallery04/ba4712c1.png?v=68be58a8">
